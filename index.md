@@ -1,4 +1,4 @@
-## HAPPY BIRTHDAY ORTHY!!!!
+                                                ** HAPPY BIRTHDAY ORTHY!!!!**
 
 You can use the [editor on GitHub](https://github.com/Rahdin/Orthy-Bday-girl/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
